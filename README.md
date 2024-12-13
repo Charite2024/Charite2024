@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning the Discovery Course on Sayna and my objective for my registration on Sayna is to acquire and develop skills in communication and digital marketing in order to monetize them
 - 💞️ I’m looking to collaborate in any area related to communication and digital marketing, cybersecurity, web writing and transcription and any collaboration will be a great opportunity for me to learn and also to put my modest digital skills at your service.
 - 📫 You can reach me on assidenoucharite@gmail.com
-- 😄 Pronouns: Charité2024
+- 😄 Pronouns: she
